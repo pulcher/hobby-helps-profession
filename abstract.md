@@ -10,3 +10,17 @@ Do you have a hobby?  Why not?  Not enough time, too many other things going on,
 
 
 ### way cool links
+
+- https://www.blackenterprise.com/5-ways-hobbies-can-help-career/
+- https://www.smartcompany.com.au/people-human-resources/professional-development/why-having-a-hobby-can-help-your-career/
+- https://www.marieclaire.co.uk/life/hobbies-helping-career-680098
+- https://www.ncbi.nlm.nih.gov/pmc/articles/PMC2863117/
+- https://www.proquest.com/openview/5d9ea365c771fc82adf4e181de38a6ae/1?pq-origsite=gscholar&amp;cbl=1816610
+- https://www.cnbc.com/2017/08/02/3-science-backed-reasons-having-a-hobby-will-help-your-career.html  <= zuckerberg video
+- http://panorama.ucmerced.edu/news/study-benefits-leisure-go-beyond-moment
+- https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3962100/
+- https://www.cnbc.com/2017/03/23/5-habits-that-help-warren-buffett-and-other-leaders-stay-successful.html <= examples
+- https://www.cnbc.com/2016/11/21/4-reasons-why-playing-the-ukulele-like-warren-buffett-could-make-you-more-successful.html
+- https://www.cnbc.com/2016/11/21/4-reasons-why-playing-the-ukulele-like-warren-buffett-could-make-you-more-successful.html
+- https://www.entrepreneur.com/article/301015#:~:text=One%20of%20the%20biggest%20benefits%20of%20having%20a,to%20make.%20How%20should%20I%20crop%20that%20shot%3F
+
