@@ -23,4 +23,5 @@ Do you have a hobby? Why not? Not enough time, too many other things going on, a
 - https://www.cnbc.com/2016/11/21/4-reasons-why-playing-the-ukulele-like-warren-buffett-could-make-you-more-successful.html
 - https://www.cnbc.com/2016/11/21/4-reasons-why-playing-the-ukulele-like-warren-buffett-could-make-you-more-successful.html
 - https://www.entrepreneur.com/article/301015#:~:text=One%20of%20the%20biggest%20benefits%20of%20having%20a,to%20make.%20How%20should%20I%20crop%20that%20shot%3F
+- https://zenfulspirit.com/2017/05/24/10-ways-to-relieve-stress-that-are-simpler-than-you-thought/
 
